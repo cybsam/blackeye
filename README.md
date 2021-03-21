@@ -2,7 +2,7 @@
 ### UPDATES :
 ##### Added 10 new websites from the Pro version!
 ##### The tool is completely free now
-####  FOR ANY SUGGESTION CONTACT :@suljot_gjoka on Instagram!
+####  FOR ANY SUGGESTION CONTACT :@cybsam on Instagram!
 
 -----------------------------------------------------------------------------------------------------------------------------
 
